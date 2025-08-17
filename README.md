@@ -1,0 +1,1 @@
+# mean-mechanics-club-entry-project
